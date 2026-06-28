@@ -1,4 +1,4 @@
-# 
+# Premium dydx trading bot plugins for Mac OS | Professionnel dydx trading bot plugins for PC Windows. Featuring stratégie de retour à la moyenne and API d'échange décentralisé — optimized for maximum performance.
 
 
 
